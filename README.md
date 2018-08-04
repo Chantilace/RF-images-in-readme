@@ -8,3 +8,4 @@
 ![organic seal - small](https://user-images.githubusercontent.com/32280473/43680748-1219f5a2-97f6-11e8-9652-97c889d66634.png)
 
 ![wildcrafted seal](https://user-images.githubusercontent.com/32280473/43680754-3f855a68-97f6-11e8-9430-7aeb810547e2.png)
+![organic seal - smaller](https://user-images.githubusercontent.com/32280473/43680910-6db423de-97fa-11e8-9b99-a8dc096c8fd3.png)
