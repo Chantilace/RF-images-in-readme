@@ -6,3 +6,5 @@
 
 ![fern-1250903_1920](https://user-images.githubusercontent.com/32280473/43679589-3f1170b8-97dc-11e8-879c-46d7408324b0.jpg)
 ![organic seal - small](https://user-images.githubusercontent.com/32280473/43680748-1219f5a2-97f6-11e8-9652-97c889d66634.png)
+
+![wildcrafted seal](https://user-images.githubusercontent.com/32280473/43680754-3f855a68-97f6-11e8-9430-7aeb810547e2.png)
