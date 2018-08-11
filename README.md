@@ -15,3 +15,6 @@
 ![bitters](https://user-images.githubusercontent.com/32280473/43994750-fa53be10-9d56-11e8-9bf3-2fae7bb1dbd6.png)
 
 ![2223 1](https://user-images.githubusercontent.com/32280473/43994778-49d746fa-9d57-11e8-94fa-29dcfeee6846.jpeg)
+![kraut2](https://user-images.githubusercontent.com/32280473/43994930-e1b2e5d6-9d59-11e8-9360-73c652100779.png)
+
+
