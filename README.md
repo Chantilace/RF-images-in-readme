@@ -20,3 +20,5 @@
 ![chai](https://user-images.githubusercontent.com/32280473/43994971-de0b4300-9d5a-11e8-9599-7ee33269c292.jpg)
 
 ![wildcrafted seal](https://user-images.githubusercontent.com/32280473/44107914-b40a1d1a-9fad-11e8-9c4e-b0969cc93369.png)
+
+![display of elixirs](https://user-images.githubusercontent.com/32280473/44295572-5a479180-a260-11e8-8322-920a0250e363.jpg)
